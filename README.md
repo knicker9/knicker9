@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @knicker9
-- 👀 I’m interested in learning and helping others... Spcifically trading and business development
+- 👀 I’m interested in learning and helping others... Specifically trading and business development
 - 🌱 I’m currently learning Futures trading 
 - 💞️ I’m looking to collaborate on Chat Dev 
 - 📫 How to reach me ... mike@wscapitalgroup.com
